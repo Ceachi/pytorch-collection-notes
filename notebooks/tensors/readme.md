@@ -1,0 +1,1 @@
+https://marksaroufim.substack.com/p/working-class-deep-learner
